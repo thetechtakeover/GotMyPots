@@ -1,2 +1,2 @@
 # GotMyPots
-Trick Daddy Restaurant
+New Restaurant Located in Miami, FL South Beach
